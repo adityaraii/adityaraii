@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @adityaraii
+- 👀 I’m interested in vedio editing and animation.
+- 🌱 I’m currently learning how to create a digital portrait.
+- 📝 You can contact me via this email:- raiaditya2828@gmail.com
